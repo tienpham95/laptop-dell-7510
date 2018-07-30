@@ -1,0 +1,1 @@
+# laptop-dell-7510
